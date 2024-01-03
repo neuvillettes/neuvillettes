@@ -1,7 +1,7 @@
 <p dir="auto">🌊 ⵌ . About Me . ↓ 
 <ul dir="auto">
 <li>I go by Dia primarily, though I go by other names as well. </li>
-<li>20, Oct. 9th. He/Him ∙ Bisexual Male</li>
+<li>20, Oct. 9th. He/Him ∙ BiAro Male</li>
 <li>under 18 limit int. idle chat is fine but I would prefer to befriend people closer in my age range.</li>
 </ul>
 <p dir="auto"><animated-image data-catalyst=""><a target="_blank" rel="noopener noreferrer nofollow" href="https://massacre.crd.co/assets/images/gallery20/f98d0f88.gif?v=cfe7914f"><img src="https://massacre.crd.co/assets/images/gallery20/f98d0f88.gif?v=cfe7914f" data-canonical-src="https://cdn.discordapp.com/attachments/1010148872640811149/1058325097800273970/ezgif-2-1a8eaa0bc6.gif" style="max-width: 100%; display: inline-block;" data-target="animated-image.originalImage"></a>
