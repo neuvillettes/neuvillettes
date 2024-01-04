@@ -24,3 +24,5 @@
 </li>
 <li>I don't mind anybody sitting with me or my friends, I won't yell at you for doing it like most people do.</li>
 <li>Please do not copy my skins, if I feel like you're copying me, I will hide you. This goes for inspo as well, please ask me first, I say yes more often than not.</li>
+
+Neuvillette IRL. Doubles Don't Exist :trollface:
